@@ -12,7 +12,7 @@
 
 ***I love paris*** :smiling_face_with_three_hearts:
 
-* My favourite place
+* My favourite places
   * paris
   * ooty
   * delhi
